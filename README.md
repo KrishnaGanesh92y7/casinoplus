@@ -6,7 +6,7 @@ En sevdiğiniz masa ve slot oyunlarına ulaşmanın en hızlı yolu! CasinoPlus 
 
 <p align="center">
  <a href="https://topchikseo.com/click.php?key=00x4bzptx9a5on4r8w7i&keyword=casinoplus&campid=github">
-  <img src="https://github.com/KrishnaGanesh92y7/casinoplus/blob/main/376756237642.jpg" alt="Golbet Türkiye" width="700"/>
+  <img src="https://github.com/KrishnaGanesh92y7/casinoplus/blob/main/376756237642.jpg" alt="Casinoplus" width="700"/>
 </p>
 
 ---
