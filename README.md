@@ -1,4 +1,4 @@
-# 🎰 CasinoPlus — Eğlence Her Zaman Yanınızda!
+# 🎰 Casinoplus Türkiye: Kazancın ve Eğlencenin Artı Noktası
 
 En sevdiğiniz masa ve slot oyunlarına ulaşmanın en hızlı yolu! CasinoPlus ile keyifli anlar ve renkli deneyimler her zaman bir tık uzağınızda!
 
